@@ -1,1 +1,1 @@
-çiftlik otomasyonu similasyonu projesi
+-çiftlik otomasyonu similasyonu projesi
