@@ -1,0 +1,1 @@
+çiftlik otomasyonu similasyonu projesi
